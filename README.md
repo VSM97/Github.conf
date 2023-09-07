@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @VSM97
-Cyber Security undergradute 
+Cyber Security Graduate
